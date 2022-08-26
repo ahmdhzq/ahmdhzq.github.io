@@ -1,1 +1,0 @@
-# ahmdhzq.github.io
